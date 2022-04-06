@@ -1,1 +1,1 @@
-# Oppertunities
+# Opportunities
